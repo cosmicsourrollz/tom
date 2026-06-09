@@ -15,3 +15,6 @@ he/they preferred
 <p align="center">
 tom kinnie and tord yume 😭oh nah
 </p>
+<p align="center">
+im a minor over 17 dni/iwecuf
+</p>
