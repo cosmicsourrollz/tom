@@ -22,7 +22,7 @@ he/they preferred but any ok
 tom kinnie and tord yume 😭oh nah
 </p>
 <p align="center">
-im a minor, over 17 dni/iwecuf
+im a minor, basic dni, over 17 dni/iwecuf
 </p>
 
 <p align="center">
