@@ -16,7 +16,7 @@ I ❤️ TORD !!!
 sour or tom
 </p>
 <p align="center">
-he/they preferred
+he/they preferred but any ok
 </p>
 <p align="center">
 tom kinnie and tord yume 😭oh nah
