@@ -28,3 +28,10 @@ im a minor, basic dni, over 17 dni/iwecuf
 <p align="center">
 <img src=https://github.com/cosmicsourrollz/cosmicsourrollz/blob/0023f9611e8916c6e63a7ae398becea3b8138cf7/tordCUTEHHH.gif width="530">
 </p>
+
+<p align="center">
+<img src=https://github.com/cosmicsourrollz/cosmicsourrollz/blob/f2b20598faa20a7f00c8835db7f0d52a8aef1b81/IMG_1766.GIF width="400">
+</p>
+<p align="center">
+thank you tui for the gif
+</p>
